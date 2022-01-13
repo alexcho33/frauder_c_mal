@@ -1354,6 +1354,106 @@
 
 ## Semaine du 10/01
 
+### Antidote : 
+Substance capable d'empêcher un corps d’exercer ses effets toxiques, remède contre un mal.
+- Antidote contre un poison.
+
+### Conscience : 
+Connaissance que chacun a de son existence et celle du monde extérieur, de la réalité./ Faculté qui pousse à porter un jugement de valeur sur ses propres actes.
+- La conscience de ses actes.
+
+### Dément :
+Atteint de démence, fou, déraisonnable.
+- Une personne démente, des yeux déments.
+
+### Escient : 
+Connaissance que l'on a de quelque chose, de ce qu'on fait.
+- À bon escient.
+
+### Faculté : 
+Aptitude particulière à quelqu'un, fonction propre à un être animé, possibilité, capacité à faire quelque chose.
+- J’admire sa faculté d'adaptation.
+
+### Fantasme : 
+Représentation imaginaire traduisant des désirs plus ou moins conscients.
+- Être dominé par ses fantasmes.
+
+### For intérieur : 
+Au fond de moi-même, en ma conscience, dans le secret de sa conscience, du plus profond de la conscience.
+- En mon for intérieur, je suis sûr qu'il réussira.
+
+### Inconscient : 
+Qui n'a pas conscience de quelque chose de son existence de la réalité évanouie qui ne se rend pas compte de quelque chose
+- Il est inconscient de l'effet qu'il a sur les gens.
+
+### Intelligent : 
+Qui est capable de concevoir les rapports entre les choses et de résoudre des problèmes par différentes façons qui fait preuve de jugement de bon sens.
+- Ce scientifique est très intelligent.
+
+### Introspection : 
+Observation méthodique de ses états de conscience et de ses processus mentaux et émotionnels. Regard attentif sur soi.
+- Pour m'orienter dans mes études, j'ai réalisé une introspection.
+
+### Jugement : 
+Action, fait de se faire une opinion sur quelqu'un ou quelque chose. Appréciation. /Décision rendue par un tribunal. Action de juger.
+- Ton jugement ne m'importe point
+
+### Mentalité : 
+Façon de penser, comportement moral./ Ensemble des manières d'agir, des habitudes intellectuelles, des croyances et des dispositions psychiques d'un groupe.
+- La mentalité des personnes évolue au fil du temps.
+
+### Moi : 
+Ce qui constitue l'individualité, la personnalité consciente du sujet. Personnalité s’affirmant en excluant les autres.
+- Son moi est tout ce qui l'intéresse.
+
+### Opinion : 
+Jugement, avis, sentiments émis sur un sujet, des faits, ce qu'il en pense.
+- Mon opinion quant à la vaccination est différente que celle de la plupart des Bulgares.
+
+### Phobie : 
+Peur irraisonnée, instinctive et obsédante.
+- Il a peur des araignées ; c'est carrément une phobie.
+
+### Préjugé : 
+Opinion, jugement formé à l'avance sans examen préconçu, souvent imposé par le milieu, l'éducation et des critères personnels.
+- Avoir un préjugé contre quelqu'un.
+
+### Psychologie : 
+Ensemble des idées, des sentiments, des caractères propres à quelqu'un, à son groupe./ Discipline, connaissance des activités mentales et des comportements humains.
+- La psychologie humaine est parfois irrationnelle.
+
+### Psychoses : 
+Changement de la personnalité bouleversant les rapports avec la réalité d'une personne ou groupe, obsession.
+- Psychose de la guerre.
+
+### Pulsion : 
+Action influencé par l'inconscient.
+- Il est dur de contrôler ses pulsions, surtout lors d'angoisse.
+
+### Résilience : 
+Capacité à supporter un stress, une épreuve, un traumatisme.
+- La résilience humaine est plus importante que l'on ne le croit.
+
+### Raison : 
+Faculté de juger et se conduire selon les principes .
+- Il faut faire preuve de raison ; nous ne sommes pas des sauvages.
+
+### Sagacité : 
+Pénétration, vivacité d'esprit qui fait découvrir et comprendre les choses les plus difficiles.
+- La sagacité des enquêteurs permet de retrouver le voleur.
+
+### Spéculation : 
+Théorie, construction abstraite, commentaire, recherche arbitraire et invérifiable.
+- Je n'ai pas vu la fin de ce film, je ne cesse de faire des spéculations à propos de sa fin.
+
+### Subconscient : 
+État psychique qui influence le comportement sans en être conscient.
+- L’instinct est l'intelligence du subconscient.
+
+### Vacuité : 
+État de ce qui est vide./ Vide intellectuel, absence de valeur.
+- La vacuité d'une existence.
+
 ## Semaine du 17/01
 
 ## Semaine du 24/01
